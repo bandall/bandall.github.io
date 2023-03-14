@@ -1,1 +1,0 @@
-# bandall.github.io
